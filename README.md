@@ -1,1 +1,0 @@
-# X-NOBITA-XD-V1
